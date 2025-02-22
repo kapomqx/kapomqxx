@@ -6,6 +6,8 @@ Windows Research
 
 
 
-***And find self correct paths this purpose correctly saying is for post Windows ***"deep"*** finded in System who have any problems or questions write in Issues. Good Luck :) 👋
+And find self correct paths this purpose correctly saying is for post Windows ***"deep"*** finded in System who have any problems or questions write in Issues. Good Luck :) 👋
+
+***(im not online every day and i not reply to anyone)***
 
 
