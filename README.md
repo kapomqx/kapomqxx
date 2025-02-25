@@ -12,4 +12,6 @@ And find self correct paths this purpose correctly saying is for post Windows **
 
 ***(im not online every day and i not reply to anyone/And who want some .reg or .bat .cmd write me personally)***
 
+> ****And what i find i document on server or here anyting in interent Like : BOOST FPS 1000FPS 0 DELAY is scam not trust because its not real and most is not documented only readed in internet like every person.****
+
 
